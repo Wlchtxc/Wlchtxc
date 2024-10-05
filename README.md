@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @Wlchtxc
-- 👀 I’m interested in learn english in order to travel to english language country
+- 👀 I’m interested in learn english in order to travel to English language country
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 🤯 ¿How do I describe myself? | People always say i´m kind, serious and smart person
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I´m big fan of playing videogames such as: Red dead redemption and Detroit Become Human
 
